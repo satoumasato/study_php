@@ -1,1 +1,2 @@
 remotehome
+でゔぇ削除
